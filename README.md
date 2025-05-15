@@ -1,1 +1,1 @@
-Tech related certification which i achieved,
+Tech related certification which i achieved.
